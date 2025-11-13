@@ -1,0 +1,1 @@
+content head detaché
